@@ -1,2 +1,2 @@
-# youandme.github.io
+# minhyuk2613.github.io
 Repository
